@@ -1,1 +1,1 @@
-# historyflooder
+so first this is used for all of my tricks and hacks you will go to the top of you screen at the search bar and click the star when you do you click more and in the url you put in the javascript and delete what was their and it will work thank you so much.
